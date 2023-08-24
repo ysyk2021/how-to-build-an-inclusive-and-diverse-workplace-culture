@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of Inclusion and Diversity in the Workplace
-=================================================================================
 
 In this chapter, we will explore the importance of understanding the benefits of inclusion and diversity in the workplace. We will discuss the definitions of inclusion and diversity and provide an overview of the benefits of fostering an inclusive and diverse workplace culture for individuals and organizations.
 

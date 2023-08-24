@@ -1,5 +1,3 @@
-Importance of Addressing Microaggressions and Discrimination in the Workplace
-=========================================================================================================================================
 
 Addressing microaggressions and discrimination is essential to building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees. In this chapter, we will discuss the importance of addressing microaggressions and discrimination in the workplace.
 

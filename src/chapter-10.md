@@ -1,5 +1,3 @@
-Chapter 10: Measuring and Evaluating Inclusion and Diversity Efforts
-====================================================================
 
 In this chapter, we will explore the importance of measuring and evaluating inclusion and diversity efforts in the workplace. We will discuss why it is important to collect data, analyze results, and use feedback to inform future strategies.
 

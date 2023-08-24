@@ -1,5 +1,3 @@
-Tracking progress and celebrating successes
-=====================================================================================================
 
 Creating an inclusive and diverse workplace culture is not a one-time event, but rather an ongoing process that requires continuous effort. In this chapter, we will discuss some implementation strategies that can help track progress and celebrate successes.
 

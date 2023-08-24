@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored the importance of building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees. We have discussed the impact of unconscious bias and stereotypes in the workplace, techniques for recognizing and overcoming them, and strategies for incorporating inclusion and diversity into company policies and practices.
 

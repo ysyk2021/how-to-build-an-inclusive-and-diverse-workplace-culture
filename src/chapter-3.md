@@ -1,5 +1,3 @@
-Chapter 3: Recognizing Unconscious Bias and Stereotypes
-=======================================================
 
 In this chapter, we will explore the importance of recognizing unconscious bias and stereotypes. We will discuss why it is essential to prioritize recognizing and overcoming biases and stereotypes, and provide strategies for identifying and overcoming them.
 

@@ -1,5 +1,3 @@
-Chapter 4: Creating a Culture of Inclusivity and Diversity
-==========================================================
 
 In this chapter, we will explore the importance of creating a culture of inclusivity and diversity in the workplace. We will discuss why it is essential to prioritize these values and provide techniques for setting expectations, promoting accountability, and establishing a safe space for dialogue.
 

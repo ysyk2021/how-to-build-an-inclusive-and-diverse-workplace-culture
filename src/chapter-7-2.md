@@ -1,5 +1,3 @@
-Strategies for empowering employees to build connections and support one another based on shared identities or interests
-===============================================================================================================================================================================================
 
 Employee resource groups (ERGs) and affinity networks are powerful tools for building an inclusive and diverse workplace culture. In this chapter, we will discuss strategies for encouraging ERGs and affinity networks.
 

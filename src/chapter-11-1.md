@@ -1,5 +1,3 @@
-Creating a Roadmap for Building an Inclusive and Diverse Workplace Culture that Celebrates Differences and Fosters Growth for All Employees
-======================================================================================================================================================================================================
 
 Creating lasting change in building an inclusive and diverse workplace culture requires a roadmap that outlines the steps needed to achieve this goal. In this chapter, we will discuss implementation strategies for creating a roadmap for building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees.
 

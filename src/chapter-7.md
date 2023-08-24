@@ -1,5 +1,3 @@
-Chapter 7: Encouraging Employee Resource Groups and Affinity Networks
-=====================================================================
 
 In this chapter, we will explore the importance of encouraging employee resource groups and affinity networks. We will discuss why it is essential to prioritize these groups and provide strategies for empowering employees to build connections and support one another based on shared identities or interests.
 

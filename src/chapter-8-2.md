@@ -1,5 +1,3 @@
-Techniques for responding to incidents and preventing them from occurring in the future
-==================================================================================================================================================
 
 Despite our best efforts to create an inclusive and diverse workplace culture, microaggressions and discrimination can still occur. In this chapter, we will discuss techniques for responding to incidents of microaggressions and discrimination and preventing them from occurring in the future.
 

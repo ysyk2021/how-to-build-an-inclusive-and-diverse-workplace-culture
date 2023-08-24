@@ -1,4 +1,4 @@
-# Introduction
+
 
 Creating an inclusive and diverse workplace culture is essential for fostering growth and success for all employees. That's where "How to Build an Inclusive and Diverse Workplace Culture that Celebrates Differences and Fosters Growth for All Employees" comes in.
 

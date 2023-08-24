@@ -1,5 +1,3 @@
-Chapter 8: Addressing Microaggressions and Discrimination
-=========================================================
 
 Importance of Addressing Microaggressions and Discrimination in the Workplace
 -----------------------------------------------------------------------------

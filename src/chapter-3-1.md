@@ -1,5 +1,3 @@
-Overview of Recognizing Unconscious Bias and Stereotypes
-=================================================================================================================
 
 In this chapter, we will discuss the concept of unconscious bias and stereotypes in the workplace. We will explore what these terms mean, how they can impact workplace culture, and techniques for recognizing them.
 

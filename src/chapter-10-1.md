@@ -1,5 +1,3 @@
-Overview of measuring and evaluating inclusion and diversity efforts
-==========================================================================================================================================
 
 Creating an inclusive and diverse workplace culture requires ongoing effort and commitment. In this chapter, we will provide an overview of measuring and evaluating inclusion and diversity efforts.
 

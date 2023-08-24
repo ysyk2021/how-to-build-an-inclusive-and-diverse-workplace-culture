@@ -1,5 +1,3 @@
-Importance of Incorporating Inclusion and Diversity into Company Policies and Practices
-=============================================================================================================================================================================
 
 In this chapter, we will discuss the importance of incorporating inclusion and diversity into company policies and practices. We will explore why it is essential for organizations to establish policies and practices that promote these values, and how doing so can lead to improved outcomes for individuals and organizations.
 

@@ -1,5 +1,3 @@
-Techniques for Designing and Delivering Effective Programs that Address Unconscious Bias, Cultural Competence, and other Relevant Topics
-====================================================================================================================================================================================================================
 
 Providing inclusive employee training and development programs is essential to building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees. In this chapter, we will discuss techniques for designing and delivering effective programs that address unconscious bias, cultural competence, and other relevant topics.
 

@@ -1,5 +1,3 @@
-Overview of encouraging employee resource groups and affinity networks
-=============================================================================================================================================
 
 Employee resource groups (ERGs) and affinity networks are powerful tools for building an inclusive and diverse workplace culture. In this chapter, we will provide an overview of encouraging ERGs and affinity networks.
 

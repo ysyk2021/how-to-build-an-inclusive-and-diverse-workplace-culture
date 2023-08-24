@@ -1,5 +1,3 @@
-Chapter 11: Implementation Strategies for Lasting Change
-========================================================
 
 Creating a Roadmap for Building an Inclusive and Diverse Workplace Culture
 --------------------------------------------------------------------------

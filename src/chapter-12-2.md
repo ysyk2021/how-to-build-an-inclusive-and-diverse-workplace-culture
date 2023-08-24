@@ -1,5 +1,3 @@
-Conclusion: Encouragement to Continue Building an Inclusive and Diverse Workplace Culture that Celebrates Differences and Fosters Growth for All Employees
-==========================================================================================================================================================
 
 Building an inclusive and diverse workplace culture is an ongoing process that requires dedication, effort, and continuous learning. In this book, we have explored a variety of techniques for building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees.
 

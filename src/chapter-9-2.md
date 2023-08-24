@@ -1,5 +1,3 @@
-Techniques for Integrating These Values into Decision-Making, Operations, and Governance
-==============================================================================================================================================================================
 
 In this chapter, we will explore techniques for incorporating inclusion and diversity into company policies and practices. We will discuss how organizations can integrate these values into decision-making, operations, and governance to create a workplace culture that celebrates differences and fosters growth for all employees.
 

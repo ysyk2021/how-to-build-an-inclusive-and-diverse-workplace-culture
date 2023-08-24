@@ -1,5 +1,3 @@
-Chapter 9: Incorporating Inclusion and Diversity into Company Policies and Practices
-====================================================================================
 
 In this chapter, we will explore the importance of incorporating inclusion and diversity into company policies and practices. We will discuss why it is important to integrate these values into decision-making, operations, and governance.
 

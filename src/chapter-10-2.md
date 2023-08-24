@@ -1,5 +1,3 @@
-Strategies for collecting data, analyzing results, and using feedback to inform future strategies
-=======================================================================================================================================================================
 
 Creating an inclusive and diverse workplace culture requires ongoing effort and commitment. In this chapter, we will discuss strategies for measuring and evaluating inclusion and diversity efforts.
 

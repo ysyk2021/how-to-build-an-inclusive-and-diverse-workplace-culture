@@ -1,5 +1,3 @@
-Techniques for setting expectations, promoting accountability, and establishing a safe space for dialogue
-=====================================================================================================================================================================
 
 Creating a culture of inclusivity and diversity is essential for building a workplace environment where all employees feel valued and respected. In this chapter, we will discuss techniques for setting expectations, promoting accountability, and establishing a safe space for dialogue.
 

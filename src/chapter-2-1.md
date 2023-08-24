@@ -1,5 +1,3 @@
-Definition of Inclusion and Diversity in the Workplace
-=========================================================================================================================================
 
 In this chapter, we will define inclusion and diversity in the workplace. We will discuss what these terms mean and why they are important for creating a workplace culture that celebrates differences and fosters growth for all employees.
 

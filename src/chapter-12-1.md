@@ -1,5 +1,3 @@
-Conclusion: Recap of Key Takeaways
-==================================
 
 In this book, we have explored the importance of building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees. We have discussed various strategies for creating such a culture, including recognizing unconscious bias and stereotypes, encouraging employee resource groups and affinity networks, and providing diversity training.
 

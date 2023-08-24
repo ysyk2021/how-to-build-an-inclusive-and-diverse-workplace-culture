@@ -1,5 +1,3 @@
-Importance of creating a culture of inclusivity and diversity in the workplace
-==========================================================================================================================================
 
 Creating a culture of inclusivity and diversity is essential for building a workplace environment where all employees feel valued and respected. In this chapter, we will discuss the importance of creating a culture of inclusivity and diversity in the workplace.
 

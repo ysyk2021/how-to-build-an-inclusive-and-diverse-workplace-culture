@@ -1,5 +1,3 @@
-Chapter 5: Fostering Diversity through Recruitment, Hiring, and Promotion Practices
-===================================================================================
 
 In this chapter, we will explore the importance of fostering diversity through recruitment, hiring, and promotion practices. We will provide an overview of strategies for creating inclusive recruitment practices that attract a diverse pool of candidates, removing bias from the hiring process, and promoting diversity in promotions.
 

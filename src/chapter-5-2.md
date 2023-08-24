@@ -1,5 +1,3 @@
-Strategies for Sourcing Candidates, Conducting Interviews, and Mitigating Bias in the Selection Process
-=============================================================================================================================================================================================
 
 Fostering diversity through recruitment, hiring, and promotion practices is essential to building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees. In this chapter, we will discuss strategies for sourcing candidates, conducting interviews, and mitigating bias in the selection process.
 

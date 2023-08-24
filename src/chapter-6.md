@@ -1,5 +1,3 @@
-Chapter 6: Providing Inclusive Employee Training and Development Programs
-=========================================================================
 
 Importance of Providing Inclusive Employee Training and Development Programs
 ----------------------------------------------------------------------------

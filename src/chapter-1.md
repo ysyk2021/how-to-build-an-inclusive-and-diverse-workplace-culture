@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will explore the importance of building an inclusive and diverse workplace culture that celebrates differences and fosters growth for all employees.
 
