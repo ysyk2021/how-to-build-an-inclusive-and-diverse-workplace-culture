@@ -1,5 +1,4 @@
-Chapter 12: Tracking Progress and Celebrating Successes
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Tracking progress and celebrating successes is crucial for building an inclusive and diverse workplace culture. This chapter highlights strategies for effectively tracking progress and recognizing achievements along the journey.
 

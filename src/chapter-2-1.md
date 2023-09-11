@@ -1,5 +1,4 @@
-Chapter 3: Definition of Inclusion and Diversity in the Workplace
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to build an inclusive and diverse workplace culture, it is important to have a clear understanding of what inclusion and diversity mean within the context of the workplace. This chapter dives into the definitions of these terms and their significance.
 

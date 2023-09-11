@@ -1,5 +1,4 @@
-Chapter 5: Importance of Creating a Culture of Inclusivity and Diversity in the Workplace
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a culture of inclusivity and diversity in the workplace is crucial for organizations that want to thrive in today's global marketplace. This chapter explores the importance of fostering a diverse and inclusive workplace environment.
 

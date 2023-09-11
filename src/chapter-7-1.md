@@ -1,5 +1,4 @@
-Chapter 5: Overview of Encouraging Employee Resource Groups and Affinity Networks
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Employee resource groups (ERGs) and affinity networks are voluntary, employee-led groups that provide a space for individuals with shared characteristics or experiences to connect, support each other, and advocate for their community. This chapter provides an overview of ERGs and affinity networks and their importance in creating an inclusive and diverse workplace culture.
 

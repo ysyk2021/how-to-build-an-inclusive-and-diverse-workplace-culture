@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Setting Expectations, Promoting Accountability, and Establishing a Safe Space for Dialogue
-=====================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting expectations, promoting accountability, and establishing a safe space for dialogue are key techniques for building an inclusive and diverse workplace culture. This chapter explores practical strategies for implementing these techniques.
 

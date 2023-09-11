@@ -1,5 +1,4 @@
-Chapter 11: Overview of Measuring and Evaluating Inclusion and Diversity Efforts
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring and evaluating inclusion and diversity efforts is essential for organizations looking to create an inclusive workplace culture. This chapter provides an overview of measuring and evaluating inclusion and diversity efforts.
 

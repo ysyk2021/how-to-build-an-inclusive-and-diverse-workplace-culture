@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Identifying and Overcoming Biases and Stereotypes
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an inclusive and diverse workplace culture requires addressing biases and stereotypes that can hinder the progress towards equality and inclusivity. This chapter explores strategies for identifying and overcoming biases and stereotypes within the workplace.
 

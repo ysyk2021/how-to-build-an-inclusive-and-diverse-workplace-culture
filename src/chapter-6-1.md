@@ -1,5 +1,4 @@
-Chapter 8: Importance of Providing Inclusive Employee Training and Development Programs
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Inclusive employee training and development programs play a vital role in building an inclusive and diverse workplace culture. This chapter explores the importance of implementing such programs and their impact on fostering growth for all employees.
 

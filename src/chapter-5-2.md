@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Sourcing Candidates, Conducting Interviews, and Mitigating Bias in the Selection Process
-==================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building an inclusive and diverse workplace culture requires a thoughtful and unbiased approach to sourcing candidates and conducting interviews. This chapter explores strategies to ensure fairness, mitigate bias, and attract a diverse pool of candidates.
 

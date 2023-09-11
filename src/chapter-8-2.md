@@ -1,5 +1,4 @@
-Chapter 13: Techniques for Responding to Incidents and Preventing Them from Occurring in the Future
-===================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an inclusive and diverse workplace culture requires ongoing efforts to address incidents of bias, discrimination, and harassment. This chapter provides strategies for responding to incidents and preventing them from occurring in the future.
 

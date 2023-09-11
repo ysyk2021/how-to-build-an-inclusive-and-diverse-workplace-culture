@@ -1,5 +1,4 @@
-Chapter 4: Benefits of Fostering an Inclusive and Diverse Workplace Culture for Individuals and Organizations
-=============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an inclusive and diverse workplace culture goes beyond social responsibility; it is also beneficial for individuals and organizations. This chapter highlights the advantages of fostering such a culture.
 

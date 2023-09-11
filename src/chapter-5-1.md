@@ -1,5 +1,4 @@
-Chapter 8: Overview of Fostering Diversity through Recruitment, Hiring, and Promotion Practices
-===============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a truly inclusive and diverse workplace culture requires intentional efforts to foster diversity at every stage of the employee lifecycle. This chapter provides an overview of strategies for fostering diversity through recruitment, hiring, and promotion practices.
 

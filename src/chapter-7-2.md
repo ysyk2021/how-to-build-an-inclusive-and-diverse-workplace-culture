@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Empowering Employees to Build Connections and Support One Another Based on Shared Identities or Interests
-===================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building an inclusive and diverse workplace culture requires creating opportunities for employees to connect, support one another, and advocate for their communities. This chapter explores strategies for empowering employees to build connections and support one another based on shared identities or interests.
 

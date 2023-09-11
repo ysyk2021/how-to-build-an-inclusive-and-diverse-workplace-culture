@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Collecting Data, Analyzing Results, and Using Feedback to Inform Future Strategies
-=============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collecting data, analyzing results, and using feedback is crucial for building an inclusive and diverse workplace culture. This chapter explores strategies for effectively collecting and utilizing data to inform future strategies.
 
